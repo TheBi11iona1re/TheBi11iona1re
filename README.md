@@ -1,7 +1,7 @@
 ### Hi there, I'm The_Bi11iona1re 👋
 
 
-## I'm a Husband, Father, Developer, and Teacher!!
+## I'm a Coder, Block Game Cheater and Bedwars Sweat!!
 
 - 🔭 I just started my first big project
 - 🌱 I’m currently learning java 
